@@ -1,3 +1,5 @@
+# September 4, 2025
+
 My entry
 Option 1 The phone law i mean it was better the way it was like if we use it in class they take it away that was fine because that was class but now they are just doing too 
 like we can't use it during lunch they only took our phones awway because it distract but now it's luch what's it disstractig me form? some people at lunch don't ave friends 
