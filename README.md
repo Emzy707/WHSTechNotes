@@ -8,4 +8,4 @@ im okay i don't really mind the law i guess
 option 2 AI i mean i think we really shouldn't use ai some are good but some are bad like if we need help maybe ask for help instead? but robots are smart so i can see why people
 so ai b but consquences i think we would get in trouble if teachers notice you use ai but it's whatever hontesly 
 i wanted to join any computer class i LOVE computers sooo much i think it's because i've been doing computer my whole middle school years i've just love howw codiing, computers and 
-all that stuff works i mean my view didn't change sooo far i still hope i can learn a lot i hope to get coding and have fun and learn about computers so much 
+all that stuff works i mean my view didn't change sooo far i still hope i can learn a lot i hope to get coding and have fun and learn about computers so much
