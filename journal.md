@@ -24,3 +24,10 @@ For me if i was in charge i would let the school use thier phones for luch or th
 # october 14, 2025
 My prompt was a little game that you shoot like rocks and avoid them Canva interpreted by codding the game making you as the ship destoring space rocks i think it works best because the control are pretty simple you just need to move the arrow keys and the space bar to shoot, i really like moving the arrow keyes and space it really works if you use them at the same time really smooth but i think we can improve it if we just space it a little maybe so it'll be easier to avoid the rocks and move around esaily but other than that i think it's fine [
 ](https://emily707.my.canva.site/)
+
+# october 20, 2025
+|Name  | Class  | Seat |
+|:-------|:----|:---|
+|Franklin|First |35B |
+|Hardeep| Second |91A |
+|Marla | Third  |61F  |
