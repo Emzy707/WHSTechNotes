@@ -31,3 +31,6 @@ My prompt was a little game that you shoot like rocks and avoid them Canva inter
 |Franklin|First |35B |
 |Hardeep| Second |91A |
 |Marla | Third  |61F  |
+
+# November 7, 2025
+I think it's so wrong there are people who live off food stamps and seeing that it's ruining out is so sad and sader that there are people who don't see the problem it's big, it's affecting the people who relay on stuff or really poor people yeah people can go to stores and buy stuff but some people can't afford stuff they need but if there was no technology i think we would be doom we use technology for everything we use it in our everyday lives if no technology i can only assume the worst if i had to creat a tool well i wouldn't know what to name it but it would be useful like helping people who lives on the edge making money to donate to places like health care or SNAP or for cancer people, but in my opinion i think it's sad or even wrong that some people are struggling even more 
