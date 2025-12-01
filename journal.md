@@ -39,4 +39,7 @@ I think it's so wrong there are people who live off food stamps and seeing that 
 well i guess the coding i kinda learn how to get it going all that coding went into my brain hopefully we learn more coding and the habit of going into github i really drag coding and computhers with me even after school because i really love computhers and coding so if all with coding in my brain that im learning so far i will take  to the grave so i learn coding and the commendments of coding everyday i walk into the classroom and i take momments of coding to understand what i am doing so i can understand it better and follow what im doing so i can get it 
 
 # November  17, 2025
-Yes very much a whole week without school just what i need i can rest and spend time with friends and family. 
+Yes very much a whole week without school just what i need i can rest and spend time with friends and family.
+
+# December 1, 2025 
+You know i heard photography/videography is using drones i really  don't know why but for videography they could may be use coding to make the topic the coding is a command for drones telling them what to do the salary for the job is aorund 39,451 per year thwy would need a formal education, a bachelor's degree, honestly im kinda scared of drones but im super into photography because i love cameras soooo much i can look past the drones and take pictures i alwayed loved photography so i wouldn't mind doing that for a living i would like that and i guess i wouldn't mind the drones
