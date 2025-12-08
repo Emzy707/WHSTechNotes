@@ -43,3 +43,6 @@ Yes very much a whole week without school just what i need i can rest and spend 
 
 # December 1, 2025 
 You know i heard photography/videography is using drones i really  don't know why but for videography they could may be use coding to make the topic the coding is a command for drones telling them what to do the salary for the job is aorund 39,451 per year thwy would need a formal education, a bachelor's degree, honestly im kinda scared of drones but im super into photography because i love cameras soooo much i can look past the drones and take pictures i alwayed loved photography so i wouldn't mind doing that for a living i would like that and i guess i wouldn't mind the drones
+
+# December 8, 2025 
+YES self driving is  horrible idea why would you want a ai driving instead of you why would you want a robot to drive instead of you driving the way you think how to drive isn't that illegal? it was legally driving through SCHOOL zones and red lights with one to have the consquences okay maybe the person wo owns the car BUT intead of the car getting charge i think it's the person who owns the car to get charge if i progarm that ai car i would code it to way safer and t think like people when they're driving or calulate the signs or roads and avoid any types of accidents 
