@@ -46,3 +46,6 @@ You know i heard photography/videography is using drones i really  don't know wh
 
 # December 8, 2025 
 YES self driving is  horrible idea why would you want a ai driving instead of you why would you want a robot to drive instead of you driving the way you think how to drive isn't that illegal? it was legally driving through SCHOOL zones and red lights with one to have the consquences okay maybe the person wo owns the car BUT intead of the car getting charge i think it's the person who owns the car to get charge if i progarm that ai car i would code it to way safer and t think like people when they're driving or calulate the signs or roads and avoid any types of accidents 
+
+# December 15, 2025
+Ummm might juust sleep in and go to like places i enjoy going and than going to visit my dad for a week and with my siblings and like maybe celbrate my birthday late and christmas just having a chill and relaxing week 
