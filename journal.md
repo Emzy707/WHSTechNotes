@@ -49,3 +49,6 @@ YES self driving is  horrible idea why would you want a ai driving instead of yo
 
 # December 15, 2025
 Ummm might juust sleep in and go to like places i enjoy going and than going to visit my dad for a week and with my siblings and like maybe celbrate my birthday late and christmas just having a chill and relaxing week 
+
+# January 6, 2026
+Well all the technology i used was my tv and my phone since there is really nothing to do for 2 weeks but than again i wasn't really on technology since for those 2 weeks i just went shopping but for my tv i used it a lot for background nosies also i have iit running al the time even all night just watching or lisenting to anything on my tv plus my tv helps me sleep also my phone well i just have it since i used it very day just listening to music or talking to my friends or family or just to play on it i was also on my mom's laptop a lot since i love laptops i was using it as a phone i think i used her laptop more than i used my phone because i love doing random stuff on her laptop but these past 2 weeks i was just out buying stuff and i used my earbuds when i want to listen to music or when im out shopping i always have my earbuds in my purse just in case i wanna use them or when i need them
